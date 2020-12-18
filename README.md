@@ -1,11 +1,16 @@
 ### Hi there 👋
 Nice to meet you! My name's lovecodeabc. Feel free to contact me on my Scratch profile (my username is the same) or if you guessed my email go ahead and reach out!
 
+Here are a few things about me:
+* Bored. All. The. Time
+* Kinda lazy 
+* Male
 Huh, I ran out of ideas to put here.
 
 
 
 Bye!
+
 <!--
 **lovecodeabc/lovecodeabc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

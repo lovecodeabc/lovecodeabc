@@ -2,7 +2,7 @@
 Nice to meet you! My name's lovecodeabc. Feel free to contact me on my Scratch profile (my username is the same) or if you guessed my email go ahead and reach out!
 
 Here are a few things about me:
-* Bored. All. The. Time
+* LITERALLY bored
 * Kinda lazy 
 * Male
 
